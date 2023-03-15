@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/her
 
 
-~ to the pleasure of exchanging and of collaborating together ~ ^^
+~ to the pleasure of exchanging and of collaborating together ~
